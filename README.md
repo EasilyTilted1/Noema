@@ -1,6 +1,6 @@
 # Noēma
 
-### Plant the seed of curiosity, ride the winds of knowledge and discover where brilliance is found beyond what can be seen from a lens.
+### Plant the seed of curiosity and discover where the winds of knowledge will take you
 
 ---
 
